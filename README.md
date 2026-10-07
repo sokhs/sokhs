@@ -144,3 +144,5 @@ Feel free to explore my repositories and follow my journey as I continue growing
 ---
 
 ### 💡 Keep Learning. Keep Building. Keep Improving.
+
+### 👨🏼‍💻 Working 12H a day, 7 day's a week, 52 week's in year and people calling me lucky 🥹
